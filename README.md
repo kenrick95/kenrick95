@@ -1,1 +1,1 @@
-[![Don't Panic](https://user-images.githubusercontent.com/3090380/225015429-d355b4b9-b155-411f-9e43-85a1390cec0b.png)](https://kenrick95.org)
+[![Don't Panic](https://github.com/kenrick95/kenrick95/assets/3090380/883aa7ec-af42-4b2c-ba09-c1346c7f07b2)](https://kenrick95.org)
